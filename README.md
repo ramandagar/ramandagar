@@ -6,7 +6,7 @@
 
 💞️ I’m eager to collaborate on challenging projects that demand creativity and innovation, driving impactful solutions. 🤝💡
 
-📫 How to reach me: Let's connect on LinkedIn at www.linkedin.com/in/ramandagar or feel free to reach out via email at ramandagar477@gmail.com. 📧📞
+📫 How to reach me: Let's connect on LinkedIn at www.linkedin.com/in/raman-dagar or feel free to reach out via email at ramandagar477@gmail.com. 📧📞
 
 <!---
 ramandagar/ramandagar is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
